@@ -1,0 +1,1 @@
+# javascript-uyga-vazifa-object-
